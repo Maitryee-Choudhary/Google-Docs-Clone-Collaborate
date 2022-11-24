@@ -10,5 +10,5 @@
 ## Preview
 
 
-https://user-images.githubusercontent.com/67001353/203726008-797cadce-e380-4ebc-bf50-6ac93fb761fe.mp4
 
+![bandicam-2022-11-24-13-02-43-691](https://user-images.githubusercontent.com/67001353/203729347-18275062-7781-495f-9627-cc54b4409f4e.gif)
